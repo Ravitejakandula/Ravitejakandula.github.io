@@ -1,4 +1,4 @@
-# Welcome to my website!
+# Welcome to my Website!
 
 
 My name is **Raviteja**. _I like to spend time with nature_ .  
